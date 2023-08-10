@@ -1,0 +1,1 @@
+Submit screenshots of all your *NIX desktops, themes, and nifty configurations, or submit anything else that will make ricers happy. Maybe a server running on an ur mom, or a Thinkpad signed by Bjarne Stroustrup? Show the world how pretty your computer can be!
